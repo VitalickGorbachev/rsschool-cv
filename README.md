@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://VitalickGorbachev.github.io/rsschool-cv/cv
